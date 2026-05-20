@@ -1,2 +1,2 @@
-# Amar Prothom Code ♥️
+# My first Code ♥️
 Hi, I am Trisha.... just learning things....
